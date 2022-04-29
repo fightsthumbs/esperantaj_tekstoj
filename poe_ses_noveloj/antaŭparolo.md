@@ -1,0 +1,9 @@
+## ANTAŬPAROLO  
+La stranga genio de la amerika poeto kaj verkisto Edgar Allen Poe estas kvazaŭ enigmo por kritikistoj. Lia kapablo, trovi por sia artismo esprimon aŭ per profunda melankolio, aŭ per skeptika rido, foje per gaja sprito, kaj eĉ per klera scienco, faras el li figuron gravan tute malproporcie kun la kvanto da verkajo de li lasita. Li naskiĝis en 1809 ĉe Boston (Mass. Usono) kaj devenis de familio anglo-irlanda. La melankolio en lia naturo multe profundiĝis pro la frua morto de liaj gepatroj kaj la freneziĝo de lia fratino.  
+Unue li fariĝis soldato, tiam poeto (lia plej fama poemo *"La korvo"* estas konata vastege), kaj poste gazetisto, kritikisto kaj aŭtoro samtempe. Lia edziĝo kun lia kuzino, kiam ŝi nur estis dekkvarjara, malgraŭ kontraŭaj profetoj, daŭris tre feliĉe; sed ŝia frua morto enigis lin en en pli profundan malĝojon, el kiu li neniam plu eliĝis; kaj li mem mortis jam dum sia kvardeka jaro, post longa malsano, parte kaŭzita de liaj penoj akiri forgeson per alkoholo.  La eksterordinaraj ecoj de liaj verkaĵoj kaŭzis kontraŭ li atakojn ĉiuspecajn; liaj kontraŭuloj ne hezitis akuzi lin eĉ pri frenezeco, kaj ne haltis post lia morto, ĉar lia bopatrino devis batali longe kaj akre poste, por defendi lian karakteron. La forta kaj atakema naturo de liaj recenzoj ankaŭ havigis al li multajn malamikojn, sed la servoj faritaj al vera literaturo per tiu kritiko estis tre grandaj.
+La ses noveloj elektitaj por tiu ĉi libro donos bonan ideon minimume pri du flankoj de lia verko. La tri mistikaj rakontoj bone montros la pezajn amasojn da mallumaj koloroj, kiujn li amis enmeti en siajn verkojn. Aliflanke la aldonitaj du komikaĵoj (kiujn aliaj eble nomus skeptikaĵoj) same montros lian fonton da preta sprito kaj plenan bonhumoron. Sed pri ĉio ĉi la leganto mem juĝu.
+*A. Frank Milward.*
+Birmingham, Anglujo
+Aprilo 1923.
+NB. La pluraj neologismoj, elĉerpitaj kaj klarigitaj laŭ
+la *Vortaro Fulĉer kaj Long*, estas signitaj per "F. L."
