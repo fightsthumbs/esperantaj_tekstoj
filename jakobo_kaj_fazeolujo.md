@@ -1,0 +1,16 @@
+# Jakobo kaj la Fazeolujo
+## Versio de Lee Miller
+
+Iam loĝis kune malriĉa vidvino kaj ŝia filo Jakobo. Iun tagon, la patrino diris al Jakobo, ke li vendu ilian solan bovinon. Jakobo iris al la vendo-placo, kaj survoje renkontis viron, kiu volas aĉeti la bovinon. Jakobo demandis: “Kion vi donos al mi por mia bovino?” La viro respondis, “Mi donos al vi kvin magiajn fazeolojn!” Jakobo akceptis la fazeolojn, kaj donis la bovinon al la viro. Sed kiam li revenis hejmen, lia patrino koleregis. Ŝi diris: “Vi stultulo! Li prenis vian bovinon kaj donis al vi kelkajn fazeolojn!” Ŝi ĵetis la fazeolojn el la fenestro. Jakobo estis tute malgaja, kaj enlitiĝis sen vespermanĝo. 
+
+La sekvan matenon, kiam Jakobo vekiĝis kaj rigardis eksteren, li vidis enorme grandan fazeolujon kiu kreskis el la magiaj semoj! Li grimpis laŭ la fazeolujo kaj atingis regnon en la ĉielo. Tie loĝis giganto kaj ties edzino. Jakobo iris en la domon, kaj trovis la edzinon en la kuirejo. Jakobo diris: “Ĉu vi povus doni al mi ion por manĝi? Mi tiel malsatas!” La bonkora edzino donis al li panon kaj lakton. 
+
+Dum li manĝis, la giganto revenis hejmen. Li estis grandega kaj timigega. Jakobo ektimis kaj fuĝis kaj kaŝis sin. La giganto kriis “Fi-faj-fum-fo, anglon flaras mi, oho. Viva, morta, jen ne gravas. Lin mi manĝos, jam mi bavas.” La edzino diris “Neniu knabo troviĝas ĉi tie!” Do, la giganto manĝis sian manĝon, kaj iris al sia ĉambro. Tie li elprenis siajn sakojn da ormoneroj, kalkulis ilin, kaj flankenmetis ilin. Kaj li endormiĝis. En la nokto, Jakobo ŝteliris el sia kaŝejo, prenis unu sakon da ormoneroj, kaj grimpis malsupren laŭ la fazeolujo. Hejme, li donis la monerojn al sia patrino. Ŝi estis tre feliĉa, kaj ili bone vivis dum iom da tempo. 
+
+Post kelkaj tagoj, Jakobo grimpis denove sur la fazeolujo kaj iris al la domo de la giganto. Denove li demandis al la edzino, ke ŝi donu al li manĝaĵon, sed dum li manĝis la giganto revenis. Jakobo eksaltis pro timo, kuris, kaj kaŝis sin sub la lito. La giganto kriis “Fi-faj-fum-fo, anglon flaras mi, oho. Viva, morta, jen ne gravas. Lin mi manĝos, mi jam bavas.” La edzino diris “Ĉi tie ne estas knabo.” La giganto manĝis sian manĝon kaj iris al sia ĉambro. Tiam li prenis kokinon, kaj kriis “Demetu ovon!” kaj la kokino demetis oran ovon. Kiam la giganto endormiĝis, Jakobo prenis la kokinon kaj grimpis malsupren laŭ la fazeolujo. Lia patrino treege feliĉis pri li. 
+
+Post iuj tagoj, Jakobo denove grimpis supren laŭ la fazeolujo kaj iris al la kastelo de la giganto. La trian fojon, li renkontis la edzinon kaj petis manĝaĵon. Denove, la edzino donis al li panon kaj lakton. Sed dum li manĝis, la giganto revenis. “Fi-faj-fum-fo, anglon flaras mi, oho. Viva, morta, jen ne gravas. Lin mi manĝos, jam mi bavas” kriis la giganto. “Ne estus stulta! Neniu knabo estas ĉi tie!” diris la edzino.
+
+La giganto havis magian harpon kiu ludas belan muzikon. Dum li dormis, Jakobo prenis la harpon, kaj komencis foriri. Subite la harpo kriis “Helpu! Mastro! Knabo min ŝtelas!” La giganto vekiĝis kaj vidis Jakobon kun la harpo. Kolerege li postkuris Jakobon. Sed Jakobo estis tro rapida por li. Li kure grimpis malsupren laŭ la fazeolujo, ĝis la hejmo. Li kuris en la domon kaj prenis hakilon. Li forhakis la fazeolujon, kaj la giganto falis kaj mortis. 
+
+Jakobo kaj lia patrino fariĝis tre riĉaj, kaj vivis feliĉe ĉiam poste.
