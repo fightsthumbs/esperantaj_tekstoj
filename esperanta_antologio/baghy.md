@@ -361,28 +361,26 @@
 
 ## INFANOJ EN LA PARKO
 
-Unua knabeto:
+    Unua knabeto:
 Mi havas paĉjon .. . jes .; . Li vivas range ..a
-Knabineto:
+    Knabineto:
 Nu, paĉjon havas ankaŭ mi!
-Dua knabeto:
-Tre strange!
+    Dua knabeto:
+                Tre strange!
 
- 
-
-Unua knabeto:
+    Unua knabeto:
 Sed tian kiel mi —ne!. . . Li pipfumas
-Knabineto:
+    Knabineto:
 Nu, fumas eĉ la mia ... jes... pipfumas!..,.
-Unua knabeto:
+    Unua knabeto:
 Li portas sur la kapo velurĉapon!
-Knabineto:
+    Knabineto:
 Ĉu vere?
-Unua knabeto:
+    Unua knabeto:
 Vere!
-Knabineto:
+    Knabineto:
 Ĉu veluran ĉapon?
-Unua knabeto:
+    Unua knabeto:
 
 Ververe! . .. Nu, li estas ja sinjoro.
 Kaj via?
@@ -446,8 +444,6 @@ Kaj kiu ŝi?
 Unua knabeto:
 La angla vartistino.
 
- 
-
 Ŝi sidas tie, sur la benk” sub pino...
 Kun ŝi nur angle mia panj' parolas.
 Knabineto:
@@ -478,8 +474,6 @@ Plej bona, sankta — mia panjo estas,
 per sia sang' kaj korp' min nutras, vestas .:
 Ho, panjo! .. . panjo kara!. ..
 Knabineto:
-
- 
 
 Nu, ne ploru!
 Unua knabeto:
@@ -527,7 +521,7 @@ Dua knabeto:
 Forkuru! ..
 
 
-Unua knabeto:
+    Unua knabeto:
 Ve al vi, se vi min batas!
 He! Anjo!
 (forkurante)

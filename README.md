@@ -12,8 +12,8 @@ Jen kelkajn ligilon kun tekstoj, ŝajne bone reservotaj!
 |Baza Legolisto de la originala Esperanto-literaturo de William Auld|[literaturo.esperanto.net](http://literaturo.esperanto.net/bazleg.html)|
 |Originala Literaturo Esperanta   |[http://literaturo.esperanto.net/](http://literaturo.esperanto.net/index.html)|
 |Esperanta Literaturo|[Vikipedio](https://eo.wikipedia.org/wiki/Esperanta_literaturo)|
-|   |[]()|
-|   |[]()|
+|Libro de Amo|[verkoj.com](http://www.verkoj.com/lauteme/klasika/lauteme/kalman-kalocsay/libro-de-amo)|
+|Sekretaj Sonetoj|[esperanto.mv.pp.ru](http://esperanto-mv.pp.ru/Kolekto/Sekretaj_sonetoj.html?utm_source=pocket_mylist)|
 |   |[]()|
 |   |[]()|
 |   |[]()|
