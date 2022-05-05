@@ -1,11 +1,6 @@
 # LA BARELO DA AMONTILADO
 
-La mil ofendojn de Fortunato mi estis tolerinta tiel.
-trankvile, kiel mi kapablis; sed kiam li riskis min insulti,
-mi ĵuris min venĝi. Vi, kiu tiel plene scias la naturon
-de mia animo, ne supozos, tamen, ke mi ellasis minacon.
-Ke fine mi estos venĝita, tio estis punkto definitive de:
-cidita — sed la definitiveco mem, per kio ĝi decidiĝis,
+La mil ofendojn de Fortunato mi estis tolerinta tiel trankvile, kiel mi kapablis; sed kiam li riskis min insulti, mi ĵuris min venĝi. Vi, kiu tiel plene scias la naturon de mia animo, ne supozos, tamen, ke mi ellasis minacon. Ke fine mi estos venĝita, tio estis punkto definitive decidita — sed la definitiveco mem, per kio ĝi decidiĝis,
 forbaris ĉian riskon, Mi ne nur devis puni, sed ankaŭ.
 puni senpune. Maljustaĵo estas ne rebonigita, se pun
 atingos al la reboniganto. Ĝi estas egale ne rebonigita;
@@ -69,19 +64,6 @@ Al viaj keloj.“ (
 honkorecon, Mi vidas, ke vi iras al rendevuo. Lukesio —“ |
 
 i
-
-35
-
- 
-
- 
- 
- 
- 
-  
- 
- 
-
 „Mi iras al neniu rendevuo; venu!“ 1]
 „Amiko mia, ne; ne gravis la rendevuo, sed gravas la |
 severa malvarmumo, pro kio mi vidas, ke vi suferas. ]
@@ -124,71 +106,6 @@ la kavernoj.“ 7
 
 Li turniĝis al mi, kaj rigardis min per du filmaj oku-
 ' loj, kiuj enhavis malsekon pro ebrieco. 1
-
-    
- 
-  
-   
-  
- 
- 
- 
- 
-
-  
-
-  
-
- 
-
- 
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
- 
-
- 
- 
-  
-  
-
-  
-
- 
-
- 
-
-     
-
- 
-
- 
- 
- 
-
- 
-
- 
- 
-
- 
-
-   
-    
-
-36
-
-  
 
 „Lu alio?" li domandis fine.
 
