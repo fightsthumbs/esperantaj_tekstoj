@@ -5,334 +5,274 @@ Schwartz, Raymond (1894-1973). Franco; bankdirektoro. Esperan- tistiĝis jam ant
 
 ## ESPERANTA ELIKSIRO
 
-Ĉu vi jam konas l” eliksiron
-De famkonata profesoro
-Por faciligi la akiron
+    Ĉu vi jam konas l' eliksiron
+    De famkonata profesoro
+    Por faciligi la akiron
+    De nia lingvo — sen doloro?
 
-De nia lingvo — sen doloro?
+    Se ne, ĝin provu, ĉar efike
+    Ĝi helpas ĉiam, sen escepto,
+    Kaj se vi volas, mi amike
+    Al vi parolos pri l' recepto:
 
-Se ne, ĝin provu, ĉar efike
-Ĝi helpas ĉiam, sen escepto,
-Kaj se vi volas, mi amike
-Al vi parolos pri l' recepto:
+    Vi ĉiutage unu glason
+    De tiu ĉi likvoro trinkos
+    Kaj vi ekscios tuj amason
+    Da faktoj, kiuj vin konvinkos!
 
-Vi ĉiutage unu glason
+    L' unuan tagon jam perfekte
+    Vi konos nian Fundamenton,
+    Vi propagandos eĉ infekte
+    Kaj kun fervor' la Novan Senton!
 
-De tiu ĉi likvoro trinkos
+    La duan tagon vi senmanke
+    Jam sendos multkolorajn kartojn
+    — Kun la poŝtmarko eĉ bildflanke —
+    En nekonatajn mondopartojn!
 
-Kaj vi ekscios tuj amason
+    La trian tagon vi science
+    Diskutos jam pri «ujo-io»
+    Kaj apartenos konsekvence
+    Samtage al l' Akademio!
 
-Da faktoj, kiuj vin konvinkos!
+    La kvaran tagon vi ver-vere
+    Tradukos je l' unua vido
+    Facilan tekston kaj fiere
+    Jam diros flue «Ĝis revido!»
 
-L' unuan tagon jam perfekte
+    La kvinan tagon gajmiene
+    Vi ekĝojiĝos pri l' konstato,
+    Ke vi komprenas jam senpene
+    Vortludojn de la Verda Kato!
 
-Vi konos nian Fundamenton,
+    La sesan tagon, ho amiko,
+    Vi venke staros ĉe la celo,
+    Kaj jen sur via umbiliko
+    Kvinpinte kreskos verda stelo!
 
-Vi propagandos cĉ infekte
-
-Kaj kun fcrvor' la Novan Scnton!
-
-La duan tagon vi senmanke
-
-Jam sendos multkolorajn kartojn
-
-— Kun la poŝtmarko cĉ bildflanke —
-En nekonatajn mondopartojn!
-
-La trian tagon vi science
-Diskutos jam pri «ujo-io»
-Kaj apartenos konsekvence
-Samtage al l' Akademio!
-
-La kvaran tagon vi ver-vere
-Tradukos je l' unua vido
-Facilan tekston kaj fiere
-Jam diros flue «Ĝis revido!»
-
-La kvinan tagon gajmienc
-
-Vi ekĝojiĝos pri l' konstato,
-Ke vi komprenas jam senpene
-Vortludojn de la Verda Kato!
-
-La sesan tagon, ho amiko,
-Vi venke staros ĉe la celo,
-Kaj jen sur via umbiliko
-Kvinpinte kreskos verda stelo!
-
-Sed nun, ne trinku plu glaseton!
-Vi perdus mensan ckvilibron
-Kaj vi eldonus . . . aŭ gazeton
-Aŭ nelegotan novan libron!
+    Sed nun, ne trinku plu glaseton!
+    Vi perdus mensan ekvilibron
+    Kaj vi eldonus . . . aŭ gazeton
+    Aŭ nelegotan novan libron!
 
 ## L' ALMOZULO
 
-Ĉiutage kun vespero
-Venas almozulo,
+    Ĉiutage kun vespero
+    Venas almozulo,
+    Kaj li staras longajn horojn
+    Ĉe la stratangulo.
 
-Kaj li staras longajn horojn
-Ĉe la stratangulo.
+    Viro eble kvindekjara
+    Kun mizera masko,
+    Tial, ke kompaton veki
+    Estas lia tasko.
 
-Viro cble kvindekjara
-Kun mizera masko,
-Tial, ke kompaton veki
-Estas lia tasko.
+    Ftiza tuso temp-al-tempe
+    Skuas lian kapon, —
+    Pli insiste li etendas
+    Grasmakulan ĉapon.
 
-Ftiza tuso temp-al-tempe
-Skuas lian kapon, —
-Pli insiste li etendas
-Grasmakulan ĉapon.
+    Li al bonaj virinetoj
+    Bruan dankon maĉas. —
+    Post avaraj senkoruloj
+    Li indigne kraĉas,
 
-Li al bonaj virinctoj
-Bruan dankon maĉas. —
-Post avaraj senkoruloj
-Li indigne kraĉas,
+    Kaj senbrue, malrapide,
+    Kiel li alvenas,
+    Li, parenc' de noktaj ombroj,
+    Lame sin fortrenas...
 
-Kaj senbrue, malrapide,
+    Ĉiutage dum noktmezo
+    Brute sen kompato
+    Ŝiras min el sana dormo
+    Bruo sur la strato:
 
-Kiel li alvenas,
-
-Li, parenc' de noktaj ombroj,
-Lame sin fortrenas . ..
-
-Ĉiutage dum noktmezo
-Brute sen kompato
-Ŝiras min el sana dormo
-Bruo sur la strato:
-
-L' almozulo kun kolegoj
-Dancas farandolon
-
-Kaj ebriaj ili grakas
-Venĝan karmanjolon.
+    L' almozulo kun kolegoj
+    Dancas farandolon
+    Kaj ebriaj ili grakas
+    Venĝan karmanjolon.
 
 ## VILAĜANINO
 
-En vilaĝo de montaroj,
-For dc l' bruo de l' kulturo,
-Vivas ĝis en niaj jaroj
-Prototip' de pranaturo.
+    En vilaĝo de montaroj,
+    For de l' bruo de l' kulturo,
+    Vivas ĝis en niaj jaroj
+    Prototip' de pranaturo.
 
- 
+    Tie mi knabinon konas,
+    — Pura koro, ŝtalmuskoloj, —
+    Kies brusto ne bezonas
+    La sekreton de piloloj!
 
-Tie mi knabinon konas,
+    Kiam ŝia buŝ' — por brili —
+    Sorbas majmatenan roson,
+    Estus peke alkonsili,
+    Ke ŝi uzu dentobroson.
 
-— Pura koro, ŝtalmuskoloj, —
-Kies brusto ne bezonas
+    Ĉar okuloj, vangoj, buŝo
+    Estas fruktoj aŭtentikaj
+    Sen bezono de retuŝo
+    Per artaĵoj kosmetikaj!
 
-La sekreton de piloloj!
+    Ŝi ne dancas, — ŝi ne fumas,
+    (Tio ŝajnas jam legendo!)
+    Kaj nur ete ŝi parfumas
+    Tolĉemizojn per lavendo;
 
-Kiam ŝia buŝ' — por brili —
-Sorbas majmatenan roson,
-Estus peke alkonsili,
+    Ŝi ne revas pri teatro,
+    Tualeton ŝi ne faras,
+    Kaj ŝi tiel al la patro
+    Ĉiujare sumojn ŝparas.
 
-Ke ŝi uzu dentobroson.
-
-Ĉar okuloj, vangoj, buŝo
-Estas fruktoj aŭtentikaj
-Sen bezono de retuŝo
-
-Per artaĵoj kosmetikaj!
-
-Ŝi ne dancas, — ŝi ne fumas,
-(Tio ŝajnas jam legendo!)
-Kaj nur ete ŝi parfumas
-Tolĉemizojn per lavendo;
-
-Ŝi ne revas pri teatro,
-Tualeton ŝi ne faras,
-Kaj ŝi tiel al la patro
-Ĉiujare sumojn ŝparas.
-
-Mi admiras vin, knabino,
-
-Kaj glorkante mi proklamas
-Virton de l” vilaĝanino,
-
-Sed — mi urbaninon amas . . 2
+    Mi admiras vin, knabino,
+    Kaj glorkante mi proklamas
+    Virton de l' vilaĝanino,
+    Sed — mi urbaninon amas...
 
  
 
 ## LA DIVERSAJ AĜOJ DE L' HOMO
 
-En supra ĉambro, lulo ... lulo..;
-Anĝele dormas la etulo:
-Etaĝo.
+    En supra ĉambro, lulo... lulo...
+    Anĝele dormas la etulo:
+        Etaĝo.
 
-Sed baldaŭ li el dorm” sin ŝiras
-Kaj pri la bela mondo miras:
-Miraĝo.
+    Sed baldaŭ li el dorm' sin ŝiras
+    Kaj pri la bela mondo miras:
+        Miraĝo.
 
-Jam ne plu side 1. tamburas,
-Sed tra la dom” esplore kuras:
-Kuraĝo.
+    Jam ne plu side li tamburas,
+    Sed tra la dom' esplore kuras:
+        Kuraĝo.
 
-Kun vundoj li (kaj sen rubandoj).
-Revenas el stratbubaj bandoj:
-Bandaĝo.
+    Kun vundoj li (kaj sen rubandoj).
+    Revenas el stratbubaj bandoj:
+        Bandaĝo.
 
-Kaj baldaŭ sekvas li kun ĝojo
-Knabinon ĉien sur la vojo:
-Vojaĝo.
+    Kaj baldaŭ sekvas li kun ĝojo
+    Knabinon ĉien sur la vojo:
+        Vojaĝo.
 
-Al ŝi li donas sian nomon
-Por fondi kune novan domon:
-Domaĝo.
+    Al ŝi li donas sian nomon
+    Por fondi kune novan domon:
+        Domaĝo.
 
-Li tiam estas tre utila
-Fortika viro, kvankam vila:
-Vilaĝo.
+    Li tiam estas tre utila
+    Fortika viro, kvankam vila:
+        Vilaĝo.
 
-Kaj post rapida tempopaso
-Postrestas nur senviva maso:
-Masaĝo.
+    Kaj post rapida tempopaso
+    Postrestas nur senviva maso:
+        Masaĝo.
 
-P. S.
+        P. S.
 
-Ni ne apliku al Virino
-
-Ĉi tiun viv- kaj rimo-saĝon,
-
-Ĉar de l' komenco ĝis la fino
-
-Ŝi ĉiam havas saman aĝon:
-Avantaĝo.
+    Ni ne apliku al Virino
+    Ĉi tiun viv- kaj rimo-saĝon,
+    Ĉar de l' komenco ĝis la fino
+    Ŝi ĉiam havas saman aĝon:
+        Avantaĝo.
 
 ## PRINTEMPA VARIANTO
 
-«Salte-dance, hop kaj hop!
-Jen alvenas en galop”
-Rajdoside sur skarabo
+    «Salte-dance, hop kaj hop!
+    Jen alvenas en galop'
+    Rajdoside sur skarabo
+    La Printempo, ĉarma knabo.
+    Junaj herboj, florburĝonoj
+    Jam borderas lian vojon
+    Kaj ĉielaj violonoj
+    Sorĉe zumas novan ĝojon!»
 
-La Printempo, ĉarma knabo.
-Junaj herboj, florburĝonoj
-Jam borderas lian vojon
-Kaj ĉielaj violonoj
+    Tiel do, aŭ proksimume,
+    Poezio ekspluatas
+    La Printempon; — interdume
+    Pli praktike mi konstatas,
+    Ke venteto-petolulo
+    Helpas miajn priokupojn:
+    Li ĉe ĉiu stratangulo
+    Blovas sub knabinajn jupojn...
 
-Sorĉe zumas novan ĝojon!»
-
-Tiel do, aŭ proksimume,
-
-Poezio ekspluatas
-
-La Printempon; — interdume
-
-Pli praktike mi konstatas,
-
-Ke venteto-petolulo
-
-Helpas miajn priokupojn:
-
-Li ĉe ĉiu stratangulo
-
-Blovas sub knabinajn jupojn . ..
-
-Jen printempsezona ĝuo!
-Mi admiras la naturon,
-
-Se ĝis super la genuo
-
-Ĝi malkovras belan kruron.
-
- 
+    Jen printempsezona ĝuo!
+    Mi admiras la naturon,
+    Se ĝis super la genuo
+    Ĝi malkovras belan kruron.
 
 ## MORGAŬ MATENE!
 
-Kiam dum vespera hor”
+    Kiam dum vespera hor'
+    Sur kanapo vi digestas,
+    Talpe venas kreditor'
+    Kaj frakase ekprotestas,
+    Ĉar pro spito aŭ malord"
+    Kvitancigi vi forgesas,
+    Tiam vi lin ĝis la pord'
+    Komplimentas kaj promesas:
 
-Sur kanapo vi digestas,
-Talpe venas kreditor'
+        Morgaŭ matene, certe, jes,
+        Estas juro kaj promes', —
+        Morgaŭ matene, sed ne nun,
+        Kiam ĉaste palas lun'
+        Kun radio brila, —
+        Morgaŭ matene, jes, — sed nun
+        Lasu min trankvila!
 
-Kaj frakase ekprotestas,
+    Kaj se via bopatrin'
+    Vin invitas, jam sen ĝeno,
+    Ke vi akompanu ŝin
+    Al balfesto ĝis mateno,
+    Vi, — ĝentila kavalir', —
+    Lace dorme nur oscedas
+    Kaj afekte kun sopir'
+    Ĵuras, kion vi ne kredas:
 
-Ĉar pro spito aŭ malord"
-Kvitancigi vi forgesas,
+        Morgaŭ matene, certe, jes,
+        Estas ĵuro kaj promes”, —
+        Morgaŭ matene, sed ne nun,
+        Kiam ĉaste palas lun'
+        Kun radio brila, —
+        Morgaŭ matene, jes, — sed nun
+        Lasu min trankvila!
 
-Tiam vi lin ĝis la pord'
-Komplimentas kaj promesas:
+    Ĉu ne foje rememor'
+    Jam en vian kapon venis
+    Pri !' edziĝonokta hor',
+    Kiam varme vi ŝin tenis?
+    Kiel viro (ne . . . hero),
+    Vi sincere ŝin karesis,
+    Eble ŝi postulis tro
+    Kaj afable vi promesis:
 
-Morgaŭ matene, certe, jes,
-Estas juro kaj promes', —
-Morgaŭ matene, sed ne nun,
-Kiam ĉaste palas lun'
+        Morgaŭ matene, certe, jes,
+        Estas ĵuro kaj promes', —
+        Morgaŭ matene, sed ne nun,
+        Kiam ĉaste palas lun'
+        Kun radio brila, —
+        Morgaŭ matene, jes, — sed nun
+        Lasu min trankvila!
 
-Kun radio brila, —
+    Kaj ni ĉiuj, sen escept',
+    Ĉiam bonon nur intencas,
+    Ni admiras en koncept”,
+    Kion ni ne tuj komencas:
+    Spari monon, fumi nur
+    Tre modere, ne plu trinki ....
+    Kaj ni tion ĵuras sur
+    La kontrakto de Helsinki:
 
-Morgaŭ matene, jes, — sed nun
-Lasu min trankvila!
-
-Kaj se via bopatrin”
-
-Vin invitas, jam sen ĝeno,
-Ke vi akompanu ŝin
-
-Al balfesto ĝis mateno,
-Vi, — ĝentila kavalir', —
-Lace dorme nur oscedas
-Kaj afekte kun sopir'
-Ĵuras, kion vi ne kredas:
-
-Morgaŭ matenc, certe, jcs,
-Estas ĵuro kaj promes”, —
-Morgaŭ matene, sed ne nun,
-Kiam ĉaste palas lun'
-
- 
-
-Kun radio brila, —
-Morgaŭ matenc, jes, — sed nun
-Lasu min trankvila!
-
-Ĉu ne foje rememor'
-
-Jam en vian kapon venis
-Pri !' edziĝonokta hor',
-Kiam varme vi ŝin tenis?
-Kiel viro (ne . . . hero),
-Vi sincere ŝin karcsis,
-Eble ŝi postulis tro
-
-Kaj afable vi promesis:
-
-Morgaŭ matene, certc, jes,
-Estas ĵuro kaj promes', —
-Morgaŭ matene, sed ne nun,
-Kiam ĉaste palas lun'
-
-Kun radio brila, —
-
-Morgaŭ matene, jes, — sed nun
-Lasu min trankvila!
-
-Kaj ni ĉiuj, sen escept”,
-
-Ĉiam bonon nur intencas,
-
-Ni admiras en koncept”,
-
-Kion ni ne tuj komencas:
-Spari monon, fumi nur
-
-Tre modere, ne plu trinki ....
-Kaj ni tion ĵuras sur
-
-La kontrakto de Helsinki:
-
-Morgaŭ matene, certe, jes,
-Estas juro kaj promcs', —
-Morgaŭ matene, sed ne nun,
-Kiam ĉaste palas lun'
-
-Kun radio brila, —
-
-Morgaŭ matene, jes, — sed nun
-Lasu min trankvila!
+        Morgaŭ matene, certe, jes,
+        Estas juro kaj promes', —
+        Morgaŭ matene, sed ne nun,
+        Kiam ĉaste palas lun'
+        Kun radio brila, —
+        Morgaŭ matene, jes, — sed nun
+        Lasu min trankvila!
 
  
 
 ## ANTAŬSIGNOJ
 
-En tiu temp” ni estis bando
+En tiu temp' ni estis bando
 Ne el paper', ne el kartono,
 Ne kiel kotiljongirlando,
 
@@ -610,7 +550,7 @@ La poŝtportist', la poŝtportist”
 Deĵoris tre malbone!
 
 Ne venis li dum pluvveter'
-Kaj nur malofte dum somcr',
+Kaj nur malofte dum somer',
 Sed eĉ por simpla cirkuler”
 
 Li venas nun persone!
@@ -671,7 +611,7 @@ Ni tion vidas senkandele!
 Jen por la fiŝoj li komence
 Fluigis akvon en riveron
 Kaj por la birdoj bonintence
-Necesan kreis la acron;
+Necesan kreis la aeron;
 
 Jen por kreskigo de !' terpomoj
 Li faris pluvon kaj sunhelon
@@ -735,7 +675,7 @@ Tribute sendas miaj papoj.
 El tiuj napoj mi science
 
 Nun premos taŭgan la oleon!”
-Li teren sendis, konsckvence,
+Li teren sendis, konsekvence,
 Tuj bonaparte NAPOLEON!!
 
 ## TRO!
@@ -753,12 +693,12 @@ Nian lingvon ĉiam uzis sendifekte,
 Kaj principe, ĉu sur strato, ĉu en stalo,
 Esperanton li parolis al ĉevalo.
 
-Kaj mirinde la ĉcvalo lin komprenis,
+Kaj mirinde la ĉevalo lin komprenis,
 Kvankam ofte certa manko iom ĝenis,
 Tio estis ĝenerale pri vortkodo
 Instiganta la tirbeston al klopodo,
 
-Efektive ĉe ni mankas, kaj cĉ multaj,
+Efektive ĉe ni mankas, kaj eĉ multaj,
 Sukaj vortoj, akre sakraj kaj insultaj!
 Tion spertis, pli ol vir' kun bopatrino,
 Ĉiutage nia brava Pelerino ...
@@ -766,7 +706,7 @@ Tion spertis, pli ol vir' kun bopatrino,
 lam ree lia besto ne nur ne tre
 Rapidetis sed eĉ haltis ĉiumetre
 
-Kaj krom tio ĝi laŭŝajnc, kvazaŭ strike,
+Kaj krom tio ĝi laŭŝajne, kvazaŭ strike,
 Per la vosto manifestis plej cinike!
 
 Pelerino kuraĝige kaj sukere
@@ -776,7 +716,7 @@ Jam li uzis, pli ordone, intermikse
 Bruajn vortojn, aĉ-aldone, fi-prefikse!
 
 Sed la besto des pli lame nur zigzagis
-Kaj ncniom, kaj neniel ĝi reagis, —
+Kaj neniom, kaj neniel ĝi reagis, —
 Pelerino aĉe kraĉe plue duŝis,
 
 Sed eĉ vorto plej “fi-akra” ĝin ne tuŝis!
@@ -800,7 +740,7 @@ Nur tra lens” de sia lorn”;
 
 Laŭ ilia perspektivo
 Ĉion kovras ĉasta gaz',
-lli ncas, ke la vivo
+lli neas, ke la vivo
 Pulsas sub ilia naz';
 
 Ni kun sopir' fabelas
@@ -820,7 +760,7 @@ Ni konstatas, — kial ne? —
 Ke grandparte la ĉapitroj
 De l Homara Epope”
 
-Nc tre glore sin prezentas,
+Ne tre glore sin prezentas,
 (Eĉ dum tempoj de l' kultur”),
 Sed ni dcs pli bone sentas,
 Kc ni estas homoj nur ...
@@ -846,7 +786,7 @@ ankaŭ mi, dum junaj jaroj,
 
 Poste, ankaŭ min muelis
 ofta deficito,
-sed mi ĉiam cltunelis
+sed mi ĉiam eltunelis
 pro denaska spito.
 
 Ne plu juna, nun mi krozas
