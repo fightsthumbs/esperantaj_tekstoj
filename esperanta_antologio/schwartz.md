@@ -1,5 +1,5 @@
 # Raymond Schwartz
-Schwartz, Raymond (1894-1973). Franco; bankdirektoro. Esperan- tistiĝis jam antaŭ la Unua Mondmilito. Post ĝi kontribuis al multaj ga- zetoj, precipe al “Literatura mondo”, “Franca esperantisto” kaj “La nica literatura revuo”. Redaktoro de la fama spritgazeto “La Pirato”. Fondinto de la esperantista kabaredo “La verda kato” kaj poste de la “Tri koboldoj”. Humuristo kaj satiristo. Verkoj: Verdkata testa- mento (originalaj versaĵoj, 1926); Prozo ridetanta (noveloj, 1928); Anni kaj Montmartre (romano, 1930); La stranga butiko (originalaj versaĵoj, 1931); La ĝoja podio (prozo kaj poezio originalaj, 1949); Kiel akvo de l' rivero (originala romano, 1963); Vole .. . novele (originala novelaro, 1971); Kun siaspeca spico ... (1971).
+**Schwartz, Raymond (1894-1973).** Franco; bankdirektoro. Esperan- tistiĝis jam antaŭ la Unua Mondmilito. Post ĝi kontribuis al multaj gazetoj, precipe al “Literatura mondo”, “Franca esperantisto” kaj “La nica literatura revuo”. Redaktoro de la fama spritgazeto “La Pirato”. Fondinto de la esperantista kabaredo “La verda kato” kaj poste de la “Tri koboldoj”. Humuristo kaj satiristo. Verkoj: Verdkata testa- mento (originalaj versaĵoj, 1926); Prozo ridetanta (noveloj, 1928); Anni kaj Montmartre (romano, 1930); La stranga butiko (originalaj versaĵoj, 1931); La ĝoja podio (prozo kaj poezio originalaj, 1949); Kiel akvo de l' rivero (originala romano, 1963); Vole .. . novele (originala novelaro, 1971); Kun siaspeca spico ... (1971).
 
 
 
@@ -272,524 +272,440 @@ Schwartz, Raymond (1894-1973). Franco; bankdirektoro. Esperan- tistiĝis jam ant
 
 ## ANTAŬSIGNOJ
 
-En tiu temp' ni estis bando
-Ne el paper', ne el kartono,
-Ne kiel kotiljongirlando,
+    En tiu temp' ni estis bando
+    Ne el paper', ne el kartono,
+    Ne kiel kotiljongirlando,
+    Sed brava band' el fajroŝtono.
 
-Sed brava band” el fajroŝtono.
+    Hej, kiel ŝprucis la fajreroj,
+    Se kun filistroj ni petolis!
+    Knabinoj virtaj en kameroj
+    Sin riglis dum ni preterbolis.
 
-Hej, kiel ŝprucis la fajreroj,
-Se kun filistroj ni petolis!
-Knabinoj virtaj en kameroj
-Sin riglis dum ni preterbolis.
+    Kokritaj edzoj nin rigardis
+    Okulminace kaj detrue
+    Kaj siajn edzinetojn gardis
+    Pli bone nun, sed tro malfrue!
 
-Kokritaj edzoj nin rigardis
-Okulminace kaj detrue
+    La mastroj de diboĉbutikoj
+    Nin timis kiel nigran peston,
+    Ĉar ni porpage per urtikoj
+    Al ili tiklis la post... keston.
 
-Kaj siajn edzinetojn gardis
-Pli bone nun, sed tro malfrue!
+    La hundoj de l' kvartalo same
+    Evitis niajn noktpatrolojn.
+    Se ne, ĝis la mateno lame
+    Ili posttiris kaserolojn.
 
-La mastroj de diboĉbutikoj
-Nin timis kiel nigran peston,
-Ĉar ni porpage per urtikoj
+    Finiĝis fars', — la tempo pasis,
+    Ni burĝe portas nun titolojn,
+    La Viv' de longe jam frakasis
+    Tiamajn revojn kaj idolojn...
 
-Al ili tiklis la post . . . keston.
+      ∗ ∗ ∗  
 
-La hundoj de l' kvartalo same
-Evitis niajn noktpatrolojn,
+    Antaŭ nelonge ni retrovis
+    Nin ĉiujn ĉe amik' komuna
+    Kaj vane komplimenti provis
+    Reciprokante: «Ĉiam juna!»
 
-Se ne, ĝis la mateno lame
+    Ĉar la tempiojn — sen riparo —
+    Anserpiede stampas faldoj,
+    Kaj la ĉapitro de l' hararo
+    Prezentas sin kun debetsaldoj.
 
-Ili posttiris kaserolojn.
+    Jen kiu per avida ŝmaco
+    Fumadis dum studentaj jaroj
+    La remburherbojn de l' matraco,
+    Nun pompas kun baroncigaroj;
 
-  
+    Alia, kiu tro aŭdace
+    Konstruis sur epikurismo,
+    Nun marŝas peze, kaj grimace
+    Li plendas jam pri reŭmatismo;
 
-ĉis fars', — la tempo pasis,
-Ni burĝe portas nun titolojn,
+    La tria, kiu cikoniojn
+    Asistis dum noktvivo peka,
+    Nun pie flustras litaniojn
+    Kaj hejmeniras je la deka;
 
-La Viv' de longe jam frakasis
-Tiamajn revojn kaj idolojn ..
+    La kvara vivis per pruntpreno
+    Aŭ dank' al senprovizaj ĉekoj;
+    Nun estas lia entrepreno:
+    Pruntdoni kontraŭ hipotekoj!
 
-= = ,
+    Ve! kamaradoj, jam aŭtune
+    Pri l' vintro nin avertas signoj,
+    Ni baldaŭ kantos ĉiuj kune
+    La faman kanton de la cignoj.
 
- 
+      ∗ ∗ ∗  
 
-Antaŭ nelonge ni retrovis
-Nin ĉiujn ĉe amik' komuna
-Kaj vane komplimenti provis
-Reciprokante: «Ĉiam juna!»
+    Ni maljuniĝis, evidente,
+    Sed pleje maljuniĝis tiu,
+    Kiu admonis nun lamente,
+    Ke ni ne tiel laŭte kriu,
 
-Ĉar la tempiojn — sen riparo —
-Anserpiede stampas faldoj,
+    «Ĉar», diris li al ni konfide,
+    «Filino mia min ĉagrenas,
+    Ŝi... plidikiĝas tro perfide,
+    Kaj tion mi ne plu komprenas...»
 
-Kaj la ĉapitro de l' hararo
-Prezentas sin kun debetsaldoj.
-
-Jen kiu per avida ŝmaco
-Fumadis dum studentaj jaroj
-
-La remburherbojn de l' matraco,
-Nun pompas kun baroncigaroj;
-
-Alia, kiu tro aŭdace
-
-Konstruis sur epikurismo,
-Nun marŝas peze, kaj grimace
-Li plendas jam pri reŭmatismo;
-
-La tria, kiu cikoniojn
-Asistis dum noktvivo peka,
-Nun pie flustras litaniojn
-Kaj hejmeniras je la deka;
-
-La kvara vivis per pruntpreno
-Aŭ dank' al senprovizaj ĉekoj;
-Nun estas lia entrepreno:
-
-Pruntdoni kontraŭ hipotekoj!
-
-Ve! kamaradoj, jam aŭtune
-Pri l' vintro nin avertas signoj,
-Ni baldaŭ kantos ĉiuj kune
-La faman kanton de la cignoj.
-
-. - .
-
-Ni maljuniĝis, evidente,
-Sed pleje maljuniĝis tiu,
-Kiu admonis nun lamente,
-Kc ni ne tiel laŭte kriu,
-
-«Ĉar», diris li al ni konfide,
-
-«Filino mia min ĉagrenas,
-
-Ŝi .. . plidikiĝas tro perfide,
-
-Kaj tion mi ne plu komprenas . .
-
-«Ho, kara nia», tuj ni ĥoris,
-«Vi kadukiĝis efektive:
-Bruligi, kion vi adoris,
-Signifas morti jam dumvive!»
+    «Ho, kara nia», tuj ni ĥoris,
+    «Vi kadukiĝis efektive:
+    Bruligi, kion vi adoris,
+    Signifas morti jam dumvive!»
 
 ## ĜIS CENT KVINDEK!
 
-«Profesoro Bogomolec, en Kiev, el-
-
-trovis serumon por plilongigi la ho-
-
-man vivon ĝis cent kvindek jaroj»
+*«Profesoro Bogomolec, en Kiev, eltrovis serumon por plilongigi la homan vivon ĝis cent kvindek jaroj»*
 (El jurnaloj)
 
-Ĉu vi aŭdis la novaĵon?
-Profesor' Bogomolcc'
-Plilongigas nun la aĝon
+    Ĉu vi aŭdis la novaĵon?
+    Profesor' Bogomolec'
+    Plilongigas nun la aĝon
+    De la tuta homa spec'.
+    Nun ni vivos — kiel karpoj —
+    Ĝis la cent kvindeka jar'!
+    Pli ol iam, pro la barboj,
+    Estos regno de... barbar'!
 
-De la tuta homa spec'.
+    Per du gramoj da serumo
+    Plilongiĝos nia viv'
+    Ĝis plejebla maksimumo,
+    Kia bela perspektiv'!
 
-Nun ni vivos — kiel karpoj —
-Ĝis la cent kvindeka jar'!
+    Estas ĝoje, dum la nuno
+    Pensi: Kelkaj inter ni
+    Eble vivos ĝis ĉe U. N. 0.
+    Fine regos harmoni'!
 
-Pli ol iam, pro la barboj,
-Estos rcgno de . . . barbar'!
+    Restas ankaŭ la espero,
+    Ke en nia propra land'
+    Ni revidos kun butero
+    Foje pecon da viand'!
+    Tiam super la telero
+    Ni hezite klinos nin
+    Kaj demandos al kelnero:
+    «... Kiel oni manĝas ĝin?»
 
-Per du gramoj da serumo
-Plilongiĝos nia viv'
+    Kia ĝojo, kiam morgaŭ
+    Progresema flugmotor'
+    Nin kondukos ĝis Novjork' aŭ
+    L' Ekvator' en duonhor'!
+    Sed ni pli kaj pli rapidos,
+    Tiel fulme, ho delir'.
+    Ke ni ree hejme sidos
+    ...lom antaŭ la forir'!
 
-Ĝis plejebla maksimumo,
-Kia bela perspektiv'!
+    Plue, dank' al la ĥemio
+    Ĉio povos tuj, laŭ vol',
+    Ŝrumpi ĝis la dimensio
+    Mikroskopa de pilol'.
+    Certe vi, antaŭ ol morti,
+    Vidos, kiel laca hom'
+    Povos mem sin hejmenporti
+    En la poŝ' de l' pantalon'!
 
- 
+    Sed mi fidas nur duone
+    Al genio de l' homar';
+    Ĝi kutimas tro sindone
+    Okupiĝi pri misfar'.
 
-Estas ĝoje, dum la nuno
-Pensi: Kelkaj inter ni
-Eble vivos ĝis ĉe U. N. 0.
-Fine regos harmoni”!
+    Kion saĝe la tekniko
+    Nun proponas al konsum',
+    Venos morgaŭ el fabriko
+    Sub la signo de Bumm-Bumm!
 
-Restas ankaŭ la espero,
-
-Ke en nia propra land'
-
-Ni revidos kun butero
-
-Foje pecon da viand'!
-Tiam super la telero
-
-Ni hezite klinos nin
-
-Kaj demandos al kelnero:
-«... Kiel oni manĝas ĝin?»
-
-Kia ĝojo, kiam morgaŭ
-Progresema flugmotor'
-
-Nin kondukos ĝis Novjork' aŭ
-L' Ekvator' en duonhor'!
-
-Sed ni pli kaj pli rapidos,
-Tiel fulme, ho delir".
-
-Kc ni ree hejme sidos
-
-- „lom antaŭ la forir'!
-
-Pluc, dank' al la ĥemio
-Ĉio povos tuj, laŭ vol",
-Ŝrumpi ĝis la dimensio
-Mikroskopa de pilol'.
-
-Certe vi, antaŭ ol morti,
-Vidos, kiel laca hom'
-Povos mem sin hejmenporti
-En la poŝ' de l' pantalon'!
-
-Sed mi fidas nur duone
-Al genio de 1” homar';
-Ĝi kutimas tro sindone
-Okupiĝi pri misfar'.
-
- 
-
-Kion saĝe la tekniko
-
-Nun proponas al konsum",
-Venos morgaŭ el fabriko
-
-Sub la signo de Bumm-Bumm!
-
-Se mi ĉion konsideras,
-Ho sinjoro profesor',
-Vere, morti mi preferas,
-Kiam venos mia hor'.
-Kial vivon plilongigi,
-
-Kiu estas duon-tomb',
-
-Se minacas nin mortigi
-Morgaŭ jam atoma bomb'!
+    Se mi ĉion konsideras,
+    Ho sinjoro profesor',
+    Vere, morti mi preferas,
+    Kiam venos mia hor'.
+    Kial vivon plilongigi,
+    Kiu estas duon-tomb',
+    Se minacas nin mortigi
+    Morgaŭ jam atoma bomb'!
 
 ## BAGATELO 1943
 
-Kelkfoje miajn noktojn ĝenas
-Spirego-bru' de mastodontoj,
-Kiuj en mian sonĝon venas
+    Kelkfoje miajn noktojn ĝenas
+    Spirego-bru' de mastodontoj,
+    Kiuj en mian sonĝon venas
+    El nekonataj horizontoj.
 
-El nekonataj horizontoj.
+    Senvole mi el dormo glitas
+    Ĝis kruda realec' de l' horoj:
+    Ankoraŭ tuta mond' militas
+    Kaj supre zumas flugmotoroj.
 
-Senvole mi el dormo glitas
-Ĝis kruda realec' de l' horoj:
-Ankoraŭ tuta mond' militas
-Kaj supre zumas flugmotoroj.
+    Aergigantoj serĉas larĝon
+    For de lumgarboj kaj ŝrapnelo
+    Por treni mortgravedan ŝarĝon
+    Stelire al signita celo.
 
-Aergigantoj serĉas larĝon
+    Sed jam la bruo al ni venas
+    El malproksim', laŭ ondoformo,
+    Kaj pli serenaj ni reprenas
+    Fadenon de l' rompita dormo...
 
-For de lumgarboj kaj ŝrapnelo
-Por treni mortgravedan ŝarĝon
-Stelire al signita celo.
+    ---
 
-Sed jam la bruo al ni venas
-El malproksim”, laŭ ondoformo,
+    La nokto pasis. Kun l' aŭroro
+    La viv' daŭrigas sian fluon,
+    Kaj la ĉiel', kun pura koro,
+    Etendas senmakulan bluon.
 
-Kaj pli serenaj ni reprenas
-Fadenon de l' rompita dormo ...
+    "Jam surpiede? — Bonmatenon,
+    Sinjor' najbaro! — Kio nova?"
 
-La nokto pasis. Kun !' aŭroro
-La viv” daŭrigas sian fluon,
-Kaj la ĉiel', kun pura koro,
-Etendas senmakulan bluon.
+    "La raŭpoj manĝis la ĝardenon...
+    ... Ducent viktimoj en Genova..."
 
-“Jam surpiede? — Bonmatenon,
-Sinjor' najbaro! — Kio nova?”
-
-“La raŭpoj manĝis la ĝardenon . . .
-„... Ducent viktimoj en Genova .. ”
-
-La viv' daŭrigas sian fluon.
+    La viv' daŭrigas sian fluon.
 
 ## TERMOMETROJ
 
-Se vin mallaŭdas la kritiko,
-Se vin atakas konkurenc',
-Se kalumnias vin amiko,
-Nu, ĝoju pri la konsekvenc',
-Ĉar ĉio tio ja signifas,
+    Se vin mallaŭdas la kritiko,
+    Se vin atakas konkurenc',
+    Se kalumnias vin amiko,
+    Nu, ĝoju pri la konsekvenc',
+    Ĉar ĉio tio ja signifas,
+    Ke vi vivas!
 
-Ke vi vivas!
-
-Se bonon pri vi ĉiuj diras
-
-Kaj nur parolas pri merit",
-Se ĉiuj ŝajn-sincere miras:
-“Ho, kia viro! kia sprit!”
-
-Videble, oni florojn portis,
-Ĉar vi mortis!
+    Se bonon pri vi ĉiuj diras
+    Kaj nur parolas pri merit",
+    Se ĉiuj ŝajn-sincere miras:
+    "Ho, kia viro! kia sprit!"
+    Videble, oni florojn portis,
+    Ĉar vi mortis!
 
  
 
 ## LA NOVA JAR'
 
-La Nova Jar', la Nova Jar'
-La homojn plibonigas!
+    La Nova Jar', la Nova Jar'
+    La homojn plibonigas!
+    Sur ĉiu strat', en ĉiu dom'
+    Afabla estas ĉiu hom',
+    La Nova Jar', la Nova Jar
+    La homojn afabligas!
 
-Sur ĉiu strat', en ĉiu dom'
-Afabla estas ĉiu hom',
+    La pordistin', la pordistin'
+    Nun ĉiam bonhumoras!
+    Antaŭe vane kaj sen fin'
+    Dumnokte mi petegis ŝin,
+    Sed nun ŝi enirigas min
+    Tuj kiam eksonoras!
 
-La Nova Jar', la Nova Jar
-La homojn afabligas!
+    La poŝtportist', la poŝtportist”
+    Deĵoris tre malbone!
+    Ne venis li dum pluvveter'
+    Kaj nur malofte dum somer',
+    Sed eĉ por simpla cirkuler"
+    Li venas nun persone!
 
-La pordistin', la pordistin'
-Nun ĉiam bonhumoras!
-Antaŭe vane kaj sen fin'
-Dumnokte mi petegis ŝin,
-Sed nun ŝi enirigas min
-Tuj kiam eksonoras!
+    Kaj la barbist' traktadis min
+    Samkiel malamikon!
+    Li senhezite, laŭ okaz',
+    Detranĉis pecon de la naz',
+    Kaj li al mi sen parafraz'
+    Manĝigis la penikon!
 
-La poŝtportist', la poŝtportist”
-Deĵoris tre malbone!
+    Sed la barbist', sed la barbist'
+    Min razas nun senvunde!
+    Kaj kun ĝentila kompliment'
+    Li diras, plena je atent':
+    "De viaj haroj cent procent
+    Rekreskas tre abunde!"
 
-Ne venis li dum pluvveter'
-Kaj nur malofte dum somer',
-Sed eĉ por simpla cirkuler”
+    Kaj malfidela amatin',
+    Al kiu mi min donis,
+    Kaj kiu laŭ infera plan'
+    Min trompis kun amerikan',
+    ŝi skribis ĵus per propra man',
+    ... Ke ŝi al mi pardonis!!
 
-Li venas nun persone!
+    Restoracia ĉefkelner',
+    Li estis ĉefbarbaro!
+    Al mia frako kaj kravat'
+    Ŝprucigis saŭcon kun salat',
+    Sed denun li pro korkompat'
+    Ĝin verŝas al najbaro!
 
-Kaj la barbist' traktadis min
-Samkiel malamikon!
-
-Li senhezite, laŭ okaz',
-Detranĉis pecon de la naz',
-Kaj li al mi sen parafraz'
-Manĝigis la penikon!
-
-Sed la barbist', sed la barbist'
-Min razas nun senvunde!
-
- 
-
-Kaj kun ĝentila kompliment'
-Li diras, plena je atent':
-“Dc viaj haroj cent procent
-Rekreskas tre abunde!”
-
-Kaj malfidela amatin',
-
-Al kiu mi min donis,
-
-Kaj kiu laŭ infera plan'
-
-Min trompis kun amerikan”,
-ŝi skribis ĵus per propra man',
-„... Ke ŝi al mi pardonis!!
-
-Restoracia ĉefkelner',
-
-Li estis ĉefbarbaro!
-
-Al mia frako kaj kravat'
-Sprucigis saŭcon kun salat',
-Sed denun li pro korkompat'
-Ĝin verŝas al najbaro!
-
-Ho Nova Jar', mi amas vin
-Pro via dolĉa paco!
-
-Sed diru, ĉu sincere vi
-Tutsola sorĉas ĉion ĉi,
-
-Aŭ ĉu ĝin faras multe pli
-Nur la Novjar-Donaco??
+    Ho Nova Jar', mi amas vin
+    Pro via dolĉa paco!
+    Sed diru, ĉu sincere vi
+    Tutsola sorĉas ĉion ĉi,
+    Aŭ ĉu ĝin faras multe pli
+    Nur la Novjar-Donaco??
 
 ## NAPOJ
 
-Jes! Dio estas saĝa viro
-Kaj kreis ĉion ĝustacele.
-Tre evidente, kun admiro
-Ni tion vidas senkandele!
+    Jes! Dio estas saĝa viro
+    Kaj kreis ĉion ĝustacele.
+    Tre evidente, kun admiro
+    Ni tion vidas senkandele!
 
-Jen por la fiŝoj li komence
-Fluigis akvon en riveron
-Kaj por la birdoj bonintence
-Necesan kreis la aeron;
+    Jen por la fiŝoj li komence
+    Fluigis akvon en riveron
+    Kaj por la birdoj bonintence
+    Necesan kreis la aeron;
 
-Jen por kreskigo de !' terpomoj
-Li faris pluvon kaj sunhelon
-Dum li samtempe al la homoj
-Donacis pluv- kaj sunombrelon!
+    Jen por kreskigo de l' terpomoj
+    Li faris pluvon kaj sunhelon
+    Dum li samtempe al la homoj
+    Donacis pluv- kaj sunombrelon!
 
-Li ellaboris speciale
+    Li ellaboris speciale
+    La homojn per zorgema mano,
+    Pripensis ĉion ĝisdetale
+    Laŭ vere tre genia plano:
 
-La homojn per zorgema mano,
-Pripensis ĉion ĝisdetale
+    Por manĝa aŭ malmanĝa celo
+    Li faris, — diras mi senmoke, —
+    Perfekte majstre, sen modelo,
+    En- kaj el-iron ĝustaloke!
 
-Laŭ vere tre genia plano:
+    Al viro li por amindumo
+    Donacis ĉarman junedzinon
+    Kaj kiel ombron apud lumo
+    Samtempe kreis... bopatrinon!
 
-Por manĝa aŭ malmanĝa celo
-Li faris, — diras mi senmokc, —
-Perfekte majstre, sen modelo,
-En- kaj el-iron ĝustalokc!
+    Sed foje Dio, kvankam ruza,
+    Embarasiĝis miakrede,
+    Kaj kvin minutojn li konfuza
+    Restadis preskaŭ senrimede...
 
-Al viro li por amindumo
-Donacis ĉarman junedzinon
+    Ĝi estis antaŭ jam jarcento,
+    Li tiam faris, en kolero,
+    Pro puno al la homa gento,
+    Militan fajron sur la tero.
 
-Kaj kiel ombron apud lumo
-Samtempe kreis . . . bopatrinon!
+    Sed tiu fajro ne sukcesis.
+    Ne flagris ĝi laŭ di-intenco,
+    Kaj estis klare, ke necesis
+    Rimedo arda pli potenca.
 
-Sed foje Dio, kvankam ruza,
-Embarasiĝis miakrede,
+    Kaj Dio pensis en medito:
+    "Jam ne utilos la petrolo,
+    Por tia fajro al incito
+    Ne plu sufiĉas mia Volo!
 
-Kaj kvin minutojn li konfuza
-Restadis preskaŭ senrimede . . ;
+    Ĉu helpos eble roz-oleo?
+    Ĉu grasa suko de l' olivo?
+    Aŭ ĉu alia naŭz-oleo
+    Revokos fajron al plenvivo?
 
-Ĝi estis antaŭ jam jarcento,
-Li tiam faris, en kolero,
-Pro puno al la homa gento,
-Militan fajron sur la tero.
+    Ha! Jen la solvo, estas klare!
+    En mia kel' troviĝas napoj
+    Amase kiujn ĉiujare
+    Tribute sendas miaj papoj.
 
- 
-
-Sed tiu fajro ne sukcesis.
-Ne flagris ĝi laŭ di-intenco,
-Kaj estis klare, ke necesis
-Rimedo arda pli potenca.
-
-Kaj Dio pensis en medito:
-“Jam ne utilos la petrolo,
-
-Por tia fajro al incito
-
-Ne plu sufiĉas mia Volo!
-
-Ĉu helpos eble roz-oleo?
-Ĉu grasa suko de l' olivo?
-Aŭ ĉu alia naŭz-oleo
-Revokos fajron al plenvivo?
-
-Ha! Jen la solvo, estas klare!
-En mia kel' troviĝas napoj
-Amase kiujn ĉiujare
-
-Tribute sendas miaj papoj.
-
-El tiuj napoj mi science
-
-Nun premos taŭgan la oleon!”
-Li teren sendis, konsekvence,
-Tuj bonaparte NAPOLEON!!
+    El tiuj napoj mi science
+    Nun premos taŭgan la oleon!"
+    ........................
+    Li teren sendis, konsekvence,
+    Tuj bonaparte NAPOLEON!!
 
 ## TRO!
 
-Kie estus fiakristo nekonanta
+    Kie estus fiakristo nekonanta
+    Kelkajn vortojn el la lingvo Esperanta?
+    Se fremdulojn ekspluati li bezonas,
+    Ĉiulingve taŭgajn frazojn li jam konas!
 
-Kelkajn vortojn el la lingvo Esperanta?
-Se fremdulojn ekspluati li bezonas,
-Ĉiulingve taŭgajn frazojn li jam konas!
+    Pelerino, fiakristo, eĉ perfekte
+    Nian lingvon ĉiam uzis sendifekte,
+    Kaj principe, ĉu sur strato, ĉu en stalo,
+    Esperanton li parolis al ĉevalo.
 
-Pelerino, fiakristo, eĉ perfekte
+    Kaj mirinde la ĉevalo lin komprenis,
+    Kvankam ofte certa manko iom ĝenis,
+    Tio estis ĝenerale pri vortkodo
+    Instiganta la tirbeston al klopodo,
 
-Nian lingvon ĉiam uzis sendifekte,
+    Efektive ĉe ni mankas, kaj eĉ multaj,
+    Sukaj vortoj, akre sakraj kaj insultaj!
+    Tion spertis, pli ol vir' kun bopatrino,
+    Ĉiutage nia brava Pelerino ...
 
-Kaj principe, ĉu sur strato, ĉu en stalo,
-Esperanton li parolis al ĉevalo.
+    lam ree lia besto ne nur ne tre
+    Rapidetis sed eĉ haltis ĉiumetre
+    Kaj krom tio ĝi laŭŝajne, kvazaŭ strike,
+    Per la vosto manifestis plej cinike!
 
-Kaj mirinde la ĉevalo lin komprenis,
-Kvankam ofte certa manko iom ĝenis,
-Tio estis ĝenerale pri vortkodo
-Instiganta la tirbeston al klopodo,
+    Pelerino kuraĝige kaj sukere
+    Jam elĉerpis ĉiujn gamojn ĝiskolere,
+    Jam li uzis, pli ordone, intermikse
+    Bruajn vortojn, aĉ-aldone, fi-prefikse!
 
-Efektive ĉe ni mankas, kaj eĉ multaj,
-Sukaj vortoj, akre sakraj kaj insultaj!
-Tion spertis, pli ol vir' kun bopatrino,
-Ĉiutage nia brava Pelerino ...
+    Sed la besto des pli lame nur zigzagis
+    Kaj neniom, kaj neniel ĝi reagis, —
+    Pelerino aĉe kraĉe plue duŝis,
+    Sed eĉ vorto plej "fi-akra" ĝin ne tuŝis!
 
-lam ree lia besto ne nur ne tre
-Rapidetis sed eĉ haltis ĉiumetre
+    Tiam peke, inspirite de l' satano,
+    Li ekkriis: "Hej, vi aka... demiano!"*
+    Kaj jen honte la ĉevalo tuj ekpalis
+    Kaj sub vipo de l' insulto ĝi mortfalis...
 
-Kaj krom tio ĝi laŭŝajne, kvazaŭ strike,
-Per la vosto manifestis plej cinike!
-
-Pelerino kuraĝige kaj sukere
-
-Jam elĉerpis ĉiujn gamojn ĝiskolere,
-Jam li uzis, pli ordone, intermikse
-Bruajn vortojn, aĉ-aldone, fi-prefikse!
-
-Sed la besto des pli lame nur zigzagis
-Kaj neniom, kaj neniel ĝi reagis, —
-Pelerino aĉe kraĉe plue duŝis,
-
-Sed eĉ vorto plej “fi-akra” ĝin ne tuŝis!
-
-Tiam peke, inspirite de l' satano,
-
-Li ekkriis: “Hej, vi aka .. . demiano!”“
-Kaj jen honte la ĉevalo tuj ekpalis
-
-Kaj sub vipo de l' insulto ĝi mortfalis . ..
-
-“Tio estas insulto kompreneble nur laŭ ĉevala vidpunkto!
+**Tio estas insulto kompreneble nur laŭ ĉevala vidpunkto!*
 
 ## AL MIZANTROPOJ
 
-Kelkaj kun ĥimeroj sidas
-Hejme apud sia forn'
+    Kelkaj kun ĥimeroj sidas
+    Hejme apud sia forn'
+    Kaj la mondon ili vidas
+    Nur tra lens' de sia lorn';
 
-Kaj la mondon ili vidas
-Nur tra lens” de sia lorn”;
+    Laŭ ilia perspektivo
+    Ĉion kovras ĉasta gaz',
+    lli neas, ke la vivo
+    Pulsas sub ilia naz';
 
-Laŭ ilia perspektivo
-Ĉion kovras ĉasta gaz',
-lli neas, ke la vivo
-Pulsas sub ilia naz';
+    Ni kun sopir' fabelas
+    Pri modele dolĉa mond'
+    Kaj de l' homoj for sin ŝtelas
+    Kvazaŭ vivi estus hont'!
 
-Ni kun sopir' fabelas
+    Jes, ni scias, — post prapatro
+    Ankaŭ ni, se tentas log',
+    Ofte vagas trans la kadro
+    De malvasta dekalog',
 
-Pri modele dolĉa mond”
+    Kaj sen nigraj okulvitroj
+    Ni konstatas, — kial ne? —
+    Ke grandparte la ĉapitroj
+    De l' Homara Epope'
 
-Kaj de l' homoj for sin ŝtelas
-Kvazaŭ vivi estus hont'!
+    Ne tre glore sin prezentas,
+    (Eĉ dum tempoj de l' kultur'),
+    Sed ni des pli bone sentas,
+    Ke ni estas homoj nur...
 
-Jes, ni scias, — post prapatro
-Ankaŭ ni, se tentas log”,
-Ofte vagas trans la kadro
-De malvasta dekalog',
+    Ke el polvo re- en polvon
+    Tiras nin la homnatur', —
+    Kial do ni serĉus solvon
+    De la cirkla kvadratur'?
 
-Kaj sen nigraj okulvitroj
-Ni konstatas, — kial ne? —
-Ke grandparte la ĉapitroj
-De l Homara Epope”
-
-Ne tre glore sin prezentas,
-(Eĉ dum tempoj de l' kultur”),
-Sed ni dcs pli bone sentas,
-Kc ni estas homoj nur ...
-
- 
-
-Kc el polvo re- en polvon
-Tiras nin la homnatur', —
-Kial do ni serĉus solvon
-De la cirkla kvadratur'?
-
-For do la grumblantan maskon,
-La grimacon de l' cenzur',
-Kaj plenumu vian taskon:
-Esti homoj! — Homoj nur!
+    For do la grumblantan maskon,
+    La grimacon de l' cenzur',
+    Kaj plenumu vian taskon:
+    Esti homoj! — Homoj nur!
 
 ## SIMPLE
 
-Kiam ĝojaj ridfanfaroj
-superbruis dubojn,
-ankaŭ mi, dum junaj jaroj,
-ŝvebis en la nubojn.
+    Kiam ĝojaj ridfanfaroj
+    superbruis dubojn,
+    ankaŭ mi, dum junaj jaroj,
+    ŝvebis en la nubojn.
 
-Poste, ankaŭ min muelis
-ofta deficito,
-sed mi ĉiam eltunelis
-pro denaska spito.
+    Poste, ankaŭ min muelis
+    ofta deficito,
+    sed mi ĉiam eltunelis
+    pro denaska spito.
 
-Ne plu juna, nun mi krozas
-super monda ŝlimo,
-ĉar ŝvebadi — mi supozas —
-iĝis jam kutimo.
+    Ne plu juna, nun mi krozas
+    super monda ŝlimo,
+    ĉar ŝvebadi — mi supozas —
+    iĝis jam kutimo.
