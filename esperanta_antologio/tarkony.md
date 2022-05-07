@@ -3,7 +3,7 @@
 
 ## JAPANESKAJ FOTOJ
 
-La pino
+### La pino
 
     La altan pinon
     ne fleksas ŝtormo murda,
@@ -11,7 +11,7 @@ La pino
     Ĉe ĝia pied' mi sidas
     kun mia vivo kurta.
 
-La ponto
+### La ponto
 
     River' rapida
     tra kolorpompa parko.
@@ -19,7 +19,7 @@ La ponto
     subjugas l' akvon kuran
     la pigra ponto-arko.
 
-La luno
+### La luno
 
     En la arbaro
     silenta nokt' odoras;
@@ -27,7 +27,7 @@ La luno
     la arĝentvesta Luno
     scivole priesploras.
 
-La adiaŭo
+### La adiaŭo
 
     La trajno lante
     ektrenas min al vojo;
