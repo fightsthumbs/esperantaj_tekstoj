@@ -1,5 +1,7 @@
 # Rafael de San Millan Alonso
 
+**de San Millan Alonso, Rafael (1866-1924).** Hispano; doktoro pri medicino. Esperantisto de 1910. Verkoj: *Tri rakontoj kaj kelkaj versaĵoj* (1914); *Ŝipopereo* (1921); *Mia poezio* (originalaj poemoj, 1932).
+
 ## LA MORALISTO
 
     Kun mien' serioza kaj severa,
