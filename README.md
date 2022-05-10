@@ -14,8 +14,8 @@ Jen kelkajn ligilon kun tekstoj, ŝajne bone reservotaj!
 |Esperanta Literaturo|[Vikipedio](https://eo.wikipedia.org/wiki/Esperanta_literaturo)|
 |Libro de Amo|[verkoj.com](http://www.verkoj.com/lauteme/klasika/lauteme/kalman-kalocsay/libro-de-amo)|
 |Sekretaj Sonetoj|[esperanto.mv.pp.ru](http://esperanto-mv.pp.ru/Kolekto/Sekretaj_sonetoj.html?utm_source=pocket_mylist)|
-|   |[]()|
-|   |[]()|
+|Don Harlow Esperanta Literaturo|[WebArchive](https://web.archive.org/web/20091212131437/http://donh.best.vwh.net/Esperanto/Literaturo/)|
+|   |[Literatuto.org](http://literaturo.org/)|
 |   |[]()|
 |   |[]()|
 |   |[]()|
