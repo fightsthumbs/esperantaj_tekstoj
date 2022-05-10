@@ -16,7 +16,7 @@ Jen kelkajn ligilon kun tekstoj, ŝajne bone reservotaj!
 |Sekretaj Sonetoj|[esperanto.mv.pp.ru](http://esperanto-mv.pp.ru/Kolekto/Sekretaj_sonetoj.html?utm_source=pocket_mylist)|
 |Don Harlow Esperanta Literaturo|[WebArchive](https://web.archive.org/web/20091212131437/http://donh.best.vwh.net/Esperanto/Literaturo/)|
 |   |[Literatuto.org](http://literaturo.org/)|
-|   |[]()|
+|   |[Esperanto Cards](https://esperanto.cards/)|
 |   |[]()|
 |   |[]()|
 |   |[]()|
