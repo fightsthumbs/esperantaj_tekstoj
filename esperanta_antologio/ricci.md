@@ -1,6 +1,6 @@
 # Johano Ricci
 
-Ricci, Johano (1875-1941). ltalo; franciskano. En 1909 li foriris Ĉinujon kiel misiisto, kie li restis — krom tri jarojn (1915-1918) — ĝis sia morto. Li havis nenian kontakton kun la Esperanto-movado. Sian longan epopeon Uranegedio li verkis en kompleta izolo.
+**Ricci, Johano (1875-1941).** ltalo; franciskano. En 1909 li foriris Ĉinujon kiel misiisto, kie li restis — krom tri jarojn (1915-1918) — ĝis sia morto. Li havis nenian kontakton kun la Esperanto-movado. Sian longan epopeon Uranegedio li verkis en kompleta izolo.
 
 
 el LA URANOGEDIO

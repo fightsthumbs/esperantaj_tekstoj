@@ -1,6 +1,6 @@
 # Georges E. Maŭra
 
-*Maŭra, Georges E. Pseŭdonimo de Gaston Waringhien (k.v.).* Poemoj en Dekdu poetoj (1934) kaj en “La nica literatura revuo”. Verko: Duonvoĉe (originalaj poemoj, 1939 kaj 1963).
+**Maŭra, Georges E. Pseŭdonimo de Gaston Waringhien (k.v.).** Poemoj en Dekdu poetoj (1934) kaj en “La nica literatura revuo”. Verko: Duonvoĉe (originalaj poemoj, 1939 kaj 1963).
 
 ## KVAR IMPRESOJ DE VINTRO
 

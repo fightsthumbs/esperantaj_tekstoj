@@ -1,5 +1,5 @@
 # Ezra Clark Stillman
-Stillman, Ezra Clark (1907- ). Usonano. Membro de la direktoraro de IALA, eksa kultur-ataŝeo de la usona ambasadorejo en Bruselo, kaj sekretario de Belgian-American Educational Foundation. Poemoj en Dekdu poetoj (1934).
+**Stillman, Ezra Clark (1907- ).** Usonano. Membro de la direktoraro de IALA, eksa kultur-ataŝeo de la usona ambasadorejo en Bruselo, kaj sekretario de Belgian-American Educational Foundation. Poemoj en Dekdu poetoj (1934).
 
 
 ## JAPANESKA KANTO...

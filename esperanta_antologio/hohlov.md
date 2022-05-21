@@ -1,6 +1,6 @@
 # Nikolai Hohlov
 
-Hohlov, Nikolai (1891-1953). Ruso; ekonomiisto. Lernis Esperan- ton en 1905. Kontribuis al multaj gazetoj, kaj tradukis el la angla, rusa kaj serba lingvoj. Verkoj: Krucumo (traduko, 1922); La morto
+**Hohlov, Nikolai (1891-1953).** Ruso; ekonomiisto. Lernis Esperan- ton en 1905. Kontribuis al multaj gazetoj, kaj tradukis el la angla, rusa kaj serba lingvoj. Verkoj: Krucumo (traduko, 1922); La morto
 
 ## CHANTE-CLAIRE
 

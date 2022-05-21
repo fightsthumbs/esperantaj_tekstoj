@@ -1,6 +1,6 @@
 # Oldfich Knichal
 
-Knichal, Oldfich (1939- ). Slovako; ĵurnalisto. Esperantisto de 1955. Agadis ia. kiel komitatano de Ĉeĥa E-Asocio; redaktoro-fondinto de ties gazeto “Starto”. Amplekse publicis pri Esperanto (i.a. 300 artikoloj kaj studoj en 22 nacilingvaj kaj 20 movadaj gazetoj); verkis, tradukis kaj redaktis entute 25 volumojn kaj 5 periodajojn. Ekde 1979 aktiva ĉefe kiel beletristo. Kunaŭtoro de Kiuj semas plorante (romano, Premio Raymond Schwartz 1980). En manuskripto du prozaj volumoj; prozverkoj ankaŭ en la ĉef: Verkoj: Kion scii pri Esperanto (ĉeĥe, 1968); Ko.wenio kaj la internacia lingvo (1974); Kontinento sen interpretistoj (ĉeĥe, 1998); Mediteme (originala kaj tradukita prozo, 1980); Meze de Eŭropo (kuntradukinto, 1980).
+**Knichal, Oldfich (1939- ).** Slovako; ĵurnalisto. Esperantisto de 1955. Agadis ia. kiel komitatano de Ĉeĥa E-Asocio; redaktoro-fondinto de ties gazeto “Starto”. Amplekse publicis pri Esperanto (i.a. 300 artikoloj kaj studoj en 22 nacilingvaj kaj 20 movadaj gazetoj); verkis, tradukis kaj redaktis entute 25 volumojn kaj 5 periodajojn. Ekde 1979 aktiva ĉefe kiel beletristo. Kunaŭtoro de Kiuj semas plorante (romano, Premio Raymond Schwartz 1980). En manuskripto du prozaj volumoj; prozverkoj ankaŭ en la ĉef: Verkoj: Kion scii pri Esperanto (ĉeĥe, 1968); Ko.wenio kaj la internacia lingvo (1974); Kontinento sen interpretistoj (ĉeĥe, 1998); Mediteme (originala kaj tradukita prozo, 1980); Meze de Eŭropo (kuntradukinto, 1980).
 
 
 ## DELONGE

@@ -1,6 +1,6 @@
 # Jaume Grau Casas
 
-Grau Casas, Jaume (1896-1950). Kataluno; urbestra sekretario. Fariĝis esperantisto en 1914. Dum multaj jaroj ĉefredaktoro de "Kataluna Esperantisto". Ekzilita en Francujo, multe verkis tie en Esperanto, en la kataluna kaj en la hispana. Postrestis Hispana antotogio en manuskripto. Verkoj: *Amaj poemoj* (1924); *Novaj amaj poemoj* (1927); *La lasta poemo* (1936); *La kataluna popol-kantaro* (tradukitaj poemoj, 1925); *Barbaraj prozaĵoj* (traduko, 1926); *Kataluna antologio* (redaktoro, 1925; 2a eld. 1931).
+**Grau Casas, Jaume (1896-1950).** Kataluno; urbestra sekretario. Fariĝis esperantisto en 1914. Dum multaj jaroj ĉefredaktoro de "Kataluna Esperantisto". Ekzilita en Francujo, multe verkis tie en Esperanto, en la kataluna kaj en la hispana. Postrestis Hispana antotogio en manuskripto. Verkoj: *Amaj poemoj* (1924); *Novaj amaj poemoj* (1927); *La lasta poemo* (1936); *La kataluna popol-kantaro* (tradukitaj poemoj, 1925); *Barbaraj prozaĵoj* (traduko, 1926); *Kataluna antologio* (redaktoro, 1925; 2a eld. 1931).
 
 ## LA LASTA POEMO
 

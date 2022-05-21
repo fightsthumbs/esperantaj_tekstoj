@@ -1,6 +1,6 @@
 # Stevan Zivanoviĉ
 
-Zivanoviĉ, Stevan (1900-1938). Serbo; literaturisto. Esperantisto de 1919, Verkoj: *La mizeruloj* (rakonto, 1922); *Bela kaj Stela* (1925); *La diino de la maro* (1926); *La sonorilo de Bled* (originala romano, 1959).
+**Zivanoviĉ, Stevan (1900-1938).** Serbo; literaturisto. Esperantisto de 1919, Verkoj: *La mizeruloj* (rakonto, 1922); *Bela kaj Stela* (1925); *La diino de la maro* (1926); *La sonorilo de Bled* (originala romano, 1959).
 
 
 ## LA JUNAĜO

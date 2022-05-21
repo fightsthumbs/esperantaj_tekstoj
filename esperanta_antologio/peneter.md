@@ -1,6 +1,6 @@
 # P. PENETER
 
-*Peneter, Peter.* Pseŭdonimo de Kalman Kalocsay, k.v. Verko: *Sekretaj sonetoj* (1932).
+**Peneter, Peter.** Pseŭdonimo de Kalman Kalocsay, k.v. Verko: *Sekretaj sonetoj* (1932).
 
 
 ## el SEKRETAJ SONETOJ

@@ -1,6 +1,6 @@
 # Marin Ljubin
 
-Ljubin, Marin, pseŭdonimo de Asen Grigorov (1993- ). Bulgaro; oficisto. Tre aktiva en la bulgara laborista movado; membro de Internacia Asocio de Revoluciaj Esperanto-Verkistoj. Ĉefredaktoro dum kvin jaroj (1945-49) de la danublanda revuo “Internacia kul- turo”. Verkoj (sub la nomo M.L.): Ruĝa aŭroro (1930, 2a eld. 1932); La himno (originalaj noveloj, 1931); pocmoj ankaŭ en “In- ternacia kulturo” kaj aliaj gazetoj. Sub la nemo A.G. aperis vortaroj kaj lernolibroj, la libro de originalaj poemoj Garbo; Tra la ventego
+**Ljubin, Marin, pseŭdonimo de Asen Grigorov (1993- ).** Bulgaro; oficisto. Tre aktiva en la bulgara laborista movado; membro de Internacia Asocio de Revoluciaj Esperanto-Verkistoj. Ĉefredaktoro dum kvin jaroj (1945-49) de la danublanda revuo “Internacia kul- turo”. Verkoj (sub la nomo M.L.): Ruĝa aŭroro (1930, 2a eld. 1932); La himno (originalaj noveloj, 1931); pocmoj ankaŭ en “In- ternacia kulturo” kaj aliaj gazetoj. Sub la nemo A.G. aperis vortaroj kaj lernolibroj, la libro de originalaj poemoj Garbo; Tra la ventego
 
 
 

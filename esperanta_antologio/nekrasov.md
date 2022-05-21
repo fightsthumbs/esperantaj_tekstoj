@@ -1,6 +1,6 @@
 # Nikolaj Vladimiroviĉ Nekrasov
 
-Nekrasov, Nikolai Vladimiroviĉ (1900 — mortis en la Dua Mondmi- liio). Ruso; ĵurnalisto. Esperantisto de 1915. En 1918-19 redaktoro de “Juna mondo”, kiun li mem kompostis en la presejo. En 1922 kunfondinto de “La nova epoko”, kaj ĝia kunredaktoro ĝis 1930. Verkis kritikajn studojn pri la originala esperanta literaturo, kaj multe tradukis poezion. Verkoj: Monna Liza (tradukita poemo, 1921); Dekdu (tradukita pocmo, 1922); Blanka cigno (tradukita poemo, 1923); Najtingala ĝardeno (tradukita poemo, 1924); Tra USSR per Esperanto (1926); Per voĉo plena (kuntradukinto, 1930); Socialismo (tradukita poemaro, 1931); Eŭgeno Onegin (tradukita poemo, 1931), kaj aliaj tradukitaj kaj originalaj poemoj.
+**Nekrasov, Nikolai Vladimiroviĉ (1900 — mortis en la Dua Mondmi- liio).** Ruso; ĵurnalisto. Esperantisto de 1915. En 1918-19 redaktoro de “Juna mondo”, kiun li mem kompostis en la presejo. En 1922 kunfondinto de “La nova epoko”, kaj ĝia kunredaktoro ĝis 1930. Verkis kritikajn studojn pri la originala esperanta literaturo, kaj multe tradukis poezion. Verkoj: Monna Liza (tradukita poemo, 1921); Dekdu (tradukita pocmo, 1922); Blanka cigno (tradukita poemo, 1923); Najtingala ĝardeno (tradukita poemo, 1924); Tra USSR per Esperanto (1926); Per voĉo plena (kuntradukinto, 1930); Socialismo (tradukita poemaro, 1931); Eŭgeno Onegin (tradukita poemo, 1931), kaj aliaj tradukitaj kaj originalaj poemoj.
 
 
 ## KRONO DE SONETOJ PRI ESPERANTO
